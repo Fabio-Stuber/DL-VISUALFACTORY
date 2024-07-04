@@ -1,6 +1,5 @@
 
-> [!IMPORTANT]
-> WIR SIND EIN VEREIN.
-
 [STATUTEN VISUAL FACTORY](https://download.visualfactory.ch/VISUAL_FACTORY_STATUTEN.pdf "STATUTEN VISUAL FACTORY")
+
+---
 
